@@ -1,6 +1,6 @@
 # Guardiões da Galáxia
 
-![Guardiões da Galáxia]("https://eb6f93.a2cdn1.secureserver.net/wp-content/uploads/2022/04/todas-equipes-marvel-250422-7.jpg")
+![Guardiões da Galáxia](https://eb6f93.a2cdn1.secureserver.net/wp-content/uploads/2022/04/todas-equipes-marvel-250422-7.jpg)
 
 **Membros atuais:** Senhor das Estrelas, Groot, Rocket Racoon, Phylla-Vell, Serpente da Lua, Gamora, Hulkling, Wiccano, Nova, a Quasar, o Quasar, Super-Skrull, Noh-Vatt, Hércules, Drax e Mantis.
 

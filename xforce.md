@@ -1,6 +1,6 @@
 # X-Force
 
-![X-Force]("https://eb6f93.a2cdn1.secureserver.net/wp-content/uploads/2022/04/todas-equipes-marvel-250422-2.jpg")
+![X-Force](https://eb6f93.a2cdn1.secureserver.net/wp-content/uploads/2022/04/todas-equipes-marvel-250422-2.jpg)
 
 **Membros atuais:** Wolverine, Dominó, Sábia, Fera, Quentin Quire, Forge, Black Tom Cassidy e Deadpool.
 

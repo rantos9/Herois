@@ -1,5 +1,5 @@
 # X-Men
-![X-Men]("https://eb6f93.a2cdn1.secureserver.net/wp-content/uploads/2022/04/todas-equipes-marvel-250422-1-1024x674.jpg")
+![X-Men](https://eb6f93.a2cdn1.secureserver.net/wp-content/uploads/2022/04/todas-equipes-marvel-250422-1-1024x674.jpg)
 
 **Membros atuais:** Ciclope, Wolverine, Jean Grey, Sincro, Polaris, Solaris e Vampira.
 
